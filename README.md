@@ -1,3 +1,3 @@
 # HDR_Retreat_2026
 
-blah...blha...blah...
+I shouldn't be so flippant...READMEs are important
